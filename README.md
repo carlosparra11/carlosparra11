@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on any beginner-level projects.
 - 🤔 I’m looking for help with the basics and setting a good foundation for myself :D
 - 💬 Ask me about sports, video-games, and movies!
-- 📫 How to reach me: DM here is the best way.
-- 😄 Pronouns: he/him.
+- 📫 How to reach me: Email is the best way.
+- 😄 Pronouns: He/Him.
 - ⚡ Fun fact: Going to the movie theatre is my favorite activity!
 
